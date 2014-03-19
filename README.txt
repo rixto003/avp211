@@ -1,2 +1,2 @@
 Tere!
-türa käi perse
+Selle muutmine ei lähe arve sitakotid
